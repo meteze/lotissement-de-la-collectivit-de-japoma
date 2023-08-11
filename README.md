@@ -1,1 +1,1 @@
-# lotissement-de-la-collectivit-de-japoma
+# lotissement-de-la-collectivité-de-japoma
